@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @griffinhighly
+- 👀 I’m interested in everything
+- 🌱 I’m currently studying electrical engineering
